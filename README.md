@@ -1,0 +1,2 @@
+# ThePainThatFollows
+Hello my name Is Sebastian, I have Ptsd And schizophrenia. This is by no means on how to cure. but instead on my journey of how I learned to cope, and how I am still learning  over time I will be adding down my thoughts, poems, journeys, triumphs, and even failures. I hope whoever is reading this can find it useful in some way, but I do stress I am no expert so don't listen to everything Thank you&lt;3.
