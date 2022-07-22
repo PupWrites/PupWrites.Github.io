@@ -6,6 +6,7 @@ When I close my eyes, I see them. The people I blame my self for losing, every m
 my eyes unable to stay open out of fear from what I might see, so I choose to close them, forgetting the enemy in my mind. the demons that slipped in years ago, Shouting, Creating images to cloud my belief that I am fine. it could end so easily, day in day out the thought of simply chambering the round turned to reality, it could end so easily.
 
 5lbs of pressure was all it took. but ever time the barrel touches my temple my scream swallows me with fear. This is my Pain. The pain that Follows
+
 ---
 
 
